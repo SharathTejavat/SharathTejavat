@@ -6,7 +6,7 @@
 
 - 💞️ I’m eager to collaborate on open-source projects, engage in cutting-edge coding challenges, and contribute to community-driven tech initiatives. Let's create something amazing together!
 
-- 📫 You can reach me at sharatht603@gmail.com. I'm also active on LinkedIn, so feel free to connect!
+- 📫 You can reach me at sharatht603@gmail.com  and sharathtejavat@gmail.com . I'm also active on LinkedIn, so feel free to connect!
 
 - 😄 Pronouns: He/Him
 
